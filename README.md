@@ -4,4 +4,4 @@
 
 This is a SIGUMA's fansite.
 
-He is so fun!
+He is so fun! We love him.
